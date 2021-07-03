@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. SOCIAL MEDIA
+   1. INSTAGRAM
+   2. FACEBOOK
+   3. WHATSAPP
+   4. DISCORD
